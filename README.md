@@ -1,5 +1,3 @@
 ## 👋
 
-im a wannabe software engineer
-
-that's it
+i am a computer science student and a software engineer wannabe
