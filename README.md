@@ -1,1 +1,1 @@
-## 👋 discord: xander#5062
+## 👋 discord - xander#5062
